@@ -86,7 +86,7 @@ Where are the technology hubs in Nigeria? This is a community project. Pull requ
 - [Aiivon Innovation Hub](https://hub.aiivon.com/)
   167 Adetokumbo Ademola Crescent, Wuse 2, Abuja
 
-- [Harmony Innovation Hub](http://harmonyinnovationhub.com/)
+- [Harmony Innovation Hub](https://www.instagram.com/_hihub/)
   M.M. Alkali Street, Off 442 Crescent, Citec Villas
   Gwarinpa, Abuja
 
