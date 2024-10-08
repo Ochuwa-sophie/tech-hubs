@@ -313,7 +313,7 @@ Where are the technology hubs in Nigeria? This is a community project. Pull requ
 - [LitCaf](https://litcaf.com)
   1st Floor, E-Center, Commercial Avenue, Sabo, Yaba. Lagos
 
-- [Passion Incubator](http://passionincubator.ng)
+- [Passion Incubator](https://www.instagram.com/p_incubator/)
   34 McNell Road, off Montgomery Road, Yaba, Lagos, Nigeria.
 
 - [Seedspace](https://www.seedspace.co/cities/seedspace-lagos/)
