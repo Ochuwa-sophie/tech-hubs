@@ -299,7 +299,7 @@ Where are the technology hubs in Nigeria? This is a community project. Pull requ
 - [360 Creative Hub](http://www.360creativehub.com/)
   34 Ajao Rd off Olufemi Str. off Ogunlana drive Surulere, Lagos.
 
-- [Co-Creation Hub](http://cchubnigeria.com)
+- [Co-Creation Hub](https://cchub.africa/innovation/)
   6th Floor, 294 Herbert Macaulay Way, Sabo, Yaba, Lagos.
 
 - [iDEA Hub](http://www.idea-nigeria.org)
