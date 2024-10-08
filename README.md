@@ -342,7 +342,7 @@ Where are the technology hubs in Nigeria? This is a community project. Pull requ
 - [Terra Kulture](http://www.terrakulture.com)
   1376, Tiamiyu Savage St, Victoria Island, Lagos
 
-- [Cre8Space](http://www.cre8.work)
+- [Cre8Space](https://www.instagram.com/cre8spaceng/)
   6, Agoro Odiyan, Victoria Isalnd, Lagos.
 
 - [Cranium One](http://cranium-one.com)
