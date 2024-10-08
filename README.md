@@ -90,7 +90,7 @@ Where are the technology hubs in Nigeria? This is a community project. Pull requ
   M.M. Alkali Street, Off 442 Crescent, Citec Villas
   Gwarinpa, Abuja
 
-- [Civic Innovation Lab](https://civicilab.com/)
+- [Civic Innovation Lab](https://www.instagram.com/civicilab/)
   50 Ademola Adetokunbo Cres, Wuse 2, Abuja
 
 - [The Smart Hub](http://thesmarthub.com.ng/)
