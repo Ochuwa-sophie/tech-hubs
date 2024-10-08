@@ -305,7 +305,7 @@ Where are the technology hubs in Nigeria? This is a community project. Pull requ
 - [iDEA Hub](https://www.instagram.com/ideanigeria/)
   296 Herbert Macaulay Way, Sabo, Yaba Lagos State.
 
-- [LeadSpace](http://theleadspace.co)
+- [LeadSpace](https://www.instagram.com/theleadspace)
 
   - 70 Olonode Street, off Hughes Avenue, Alagomeji, Yaba, Lagos.
   - 17 Akinsanya Street, Beside FRSC Building, Ojodu, Lagos.
