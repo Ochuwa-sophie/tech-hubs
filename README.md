@@ -319,7 +319,7 @@ Where are the technology hubs in Nigeria? This is a community project. Pull requ
 - [Seedspace](https://www.instagram.com/seedspacelagos/)
   23 Agodogba Ave, Ikoyi, Lagos.
 
-- [TPX Hub](http://www.tpxhub.com.ng)
+- [TPX Hub](https://www.instagram.com/tpxhub/)
   16, Alfred Olaiya Street, Off Oroleye Crescent, Opebi, Ikeja, Lagos.
 
 - [WennovationHub](http://wennovationhub.org)
