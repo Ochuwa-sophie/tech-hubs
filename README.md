@@ -93,7 +93,7 @@ Where are the technology hubs in Nigeria? This is a community project. Pull requ
 - [Civic Innovation Lab](https://www.instagram.com/civicilab/)
   50 Ademola Adetokunbo Cres, Wuse 2, Abuja
 
-- [The Smart Hub](http://thesmarthub.com.ng/)
+- [The Smart Hub](https://www.linkedin.com/company/thesmarthubng/?originalSubdomain=ng)
   Suite E16, Emab Plaza, Wuse 2, Abuja
 
 - [Box Office Hub](https://www.boxofficeng.com)
