@@ -363,7 +363,7 @@ Where are the technology hubs in Nigeria? This is a community project. Pull requ
   - 14A Bayo Dejonwo Street, MaryLand Estate, Lagos
   - Plot 23, Kunle Ogunba Street off Admiralty way, Lekki Phase 1, Lagos
 
-- [V8 Valley](http://v8africa.com)
+- [V8 Valley](https://www.instagram.com/v8africa/)
   7b, Dr S Ezekuse Close, Lekki Phase 1, Lagos
 
 - [eeSpace](http://eespace.com.ng)
